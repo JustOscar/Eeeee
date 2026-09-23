@@ -88,7 +88,15 @@ Quality Analyst responsibilities
 until you've actually done them.
 
 For someone returning to work after a 5-year parental break, I'd position this role as:
-
 Multilingual Customer Support & Onboarding Specialist supporting TikTok business customers in English and Spanish.
-
 That wording will look stronger when you start applying for higher-paying roles in 6-12 months.
+
+After receiving a formal offer:
+Thank you very much for the offer. I am genuinely interested in joining the team. While 7,000 PLN gross was my initial expectation based on the information available when I applied, I now have a fuller understanding of the responsibilities, working arrangements, and scope of the position. Considering my native-level English and Spanish, current TikTok onboarding experience, and relevant HubSpot and Zendesk credentials, would there be any flexibility to increase the base salary to 7,800 PLN gross?
+I would also appreciate clarification regarding the standard working hours and whether there is flexibility in start and finish times after the training period. I have regular childcare responsibilities on certain afternoons, so understanding the team’s scheduling arrangements is important to me.
+
+Thank you very much for the offer. I am genuinely interested in joining the team. While 7,000 PLN gross was my initial expectation based on the information available when I applied, I now have a fuller understanding of the responsibilities, working arrangements, and scope of the position.
+Considering my native-level English and Spanish, current TikTok onboarding experience, and relevant HubSpot and Zendesk credentials, would there be any flexibility to increase the base salary to 7,800 PLN gross?
+
+During the second interview, ask:
+I understand that this position is offered on a 14-month fixed-term contract. HR mentioned that the company may be considering permanent opportunities for Spanish-speaking employees. Could you tell me whether there may be a pathway to a permanent position after the initial contract and what would normally determine that decision?
