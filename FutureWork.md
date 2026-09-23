@@ -98,5 +98,7 @@ I would also appreciate clarification regarding the standard working hours and w
 Thank you very much for the offer. I am genuinely interested in joining the team. While 7,000 PLN gross was my initial expectation based on the information available when I applied, I now have a fuller understanding of the responsibilities, working arrangements, and scope of the position.
 Considering my native-level English and Spanish, current TikTok onboarding experience, and relevant HubSpot and Zendesk credentials, would there be any flexibility to increase the base salary to 7,800 PLN gross?
 
+Could you please explain the team’s standard working hours and whether employees have any flexibility in their start and finish times after training? I have regular childcare responsibilities on certain afternoons, so it would be helpful to understand whether, for example, starting and finishing earlier on those days could be accommodated.
+
 During the second interview, ask:
 I understand that this position is offered on a 14-month fixed-term contract. HR mentioned that the company may be considering permanent opportunities for Spanish-speaking employees. Could you tell me whether there may be a pathway to a permanent position after the initial contract and what would normally determine that decision?
