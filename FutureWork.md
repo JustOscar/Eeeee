@@ -102,3 +102,24 @@ Could you please explain the team’s standard working hours and whether employe
 
 During the second interview, ask:
 I understand that this position is offered on a 14-month fixed-term contract. HR mentioned that the company may be considering permanent opportunities for Spanish-speaking employees. Could you tell me whether there may be a pathway to a permanent position after the initial contract and what would normally determine that decision?
+
+Hi Patricja,
+
+Thank you again for arranging the second interview. Before the meeting, I would like to clarify an important scheduling point to ensure that the position would be workable for both sides.
+
+Due to fixed childcare responsibilities, my consistent availability is:
+
+Monday: 08:00–14:30
+ Tuesday: 08:00–16:00
+ Wednesday: 08:00–15:30
+ Thursday: 08:00–15:00
+ Friday: 08:00–16:00
+
+These hours would need to apply during the initial office-based training period as well as afterward. I understand that this totals 37 hours per week. Could you please let me know whether Newell could accommodate this through an individual working schedule or an appropriate contractual arrangement?
+
+Could you also confirm the exact office address where the training would take place? This will allow me to assess the commute following the morning school drop-off at 07:30.
+
+I remain very interested in the opportunity and would be happy to continue with the interview if this scheduling arrangement could be considered.
+
+Kind regards,
+ Oscar
